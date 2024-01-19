@@ -30,7 +30,7 @@ Feel free to reach out to me for collaboration or if you have any questions!
 
 ## Contact
 
-- 📧 Email: [lev@example.com](mailto:levaliesh@gmail.com)
+- 📧 Email: [levaliesh@gmail.com](mailto:levaliesh@gmail.com)
 
 ---
 
